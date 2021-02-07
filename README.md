@@ -1,0 +1,1 @@
+# denklem_kok_bul
